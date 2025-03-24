@@ -1,1 +1,1 @@
-[@wrsrsh](https://linkedin.com/wrsrsh)
+[@wrsrsh](https://linkedin.com/in/wrsrsh)
