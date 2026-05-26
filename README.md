@@ -1,1 +1,1 @@
-i like making everything deterministic.
+building conversational intelligence.  
