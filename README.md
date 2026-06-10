@@ -1,1 +1,1 @@
-read my musings at (www.reshi.me)[https://reshi.me]
+read my musings at [www.reshi.me](https://reshi.me)
